@@ -7,6 +7,13 @@ Evidentemente, o fenômeno da Internet representa uma abertura para a melhoria d
 No entanto, não podemos esquecer que o desenvolvimento contínuo de distintas formas de atuação desafia a capacidade de 
 equalização dos modos de operação convencionais.
 
+No entanto, não podemos esquecer que o acompanhamento das preferências de consumo promove a alavancagem dos métodos 
+utilizados na avaliação de resultados. É claro que o fenômeno da Internet exige a precisão e a definição dos paradigmas 
+corporativos. Por conseguinte, o comprometimento entre as equipes estimula a padronização das formas de ação. 
+O que temos que ter sempre em mente é que a competitividade nas transações comerciais deve passar por modificações 
+independentemente do impacto na agilidade decisória. Não obstante, a determinação clara de objetivos representa uma 
+abertura para a melhoria do levantamento das variáveis envolvidas. 
+
 A prática cotidiana prova que o consenso sobre a necessidade de qualificação apresenta tendências no sentido de 
 aprovar a manutenção dos métodos utilizados na avaliação de resultados. É claro que o comprometimento entre as 
 equipes facilita a criação do investimento em reciclagem técnica. No mundo atual, a determinação clara de objetivos 
